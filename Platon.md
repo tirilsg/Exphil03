@@ -15,4 +15,10 @@ En `oppfatning` er å tro at noe er på en bestemt måte, selv om dette kan vær
 `Sann oppfatning` er å tro at noe er poå en bestemt måte, og at det er riktig uten å kunne foklare hvorfor. 
 `Viten` er sann oppfatning i noe, som også har begrunnelse som er dypere enn erfaring. Viten er knyttet til sjelen ved hjelp av tenkning. Viten om dyd gir oss mulighet tilå løse oppgaven livt er, og dermed også mulighet til å leve gode og meningsfulle liv. 
 
+Mente man ikke behøvde vektlegge konkrete observasjoner av virkeligheten. LIkevel hevdet han at kunnskap kunne oppnæs ved hjelp av sanser og fornuft likevel, noe som henger smamen med verdenssynet hans. For å oppnå kunnskap om idfeer kreves rasjonell tenkning. Det er kun avanserte rasjonelle tenkere å oppnå ekte sann viten, da de mest avanserte ideer krever gode tenkere. All læring av avdekking av medfødte ideer. Sjelen har allerede sett alt, og det er dermed mulig å gjenerindre all kunnskap i hele verden om man grubler lenge nok. 
 
+Platon var dydtsetiker - den som vet hva som er rett gjør det som er rett. Et menneske fungerer gått når det er balanse mellom sjelens tre aspekter fornuft, vilje og begjær. 
+
+Argumenterer for lkestilling mellom kjønn, med unntak av at kvinner 'på gruinn av sitt kjønns svakhet skal få letter oppgaver enn mennene'. 
+
+Platon var ingen tilhenger av demokratiet, men forfektet en elitisk stat det alle ble passert der evnene deres kom best til bruk. Fornuft er likt fordelt mellom menn og kvinner, fo dermed må oppgaver fordeles likt mellom kjønnene. Det er staten som er viktig, ikke den enkelte. 
