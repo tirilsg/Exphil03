@@ -2,7 +2,7 @@
 Notes to prepare for an exam in the course EXPHIL03
 
 
-## Important terms: 
+## Viktige begreper: 
 
 - Metafysikk : 'filsofisk studie av hva som ligger til grunn for virkeligheten', kjerneområde inne filosofi. Læren om tilværelsens grunner og prinsipper. D som ligger til grunn for virkeligheten, som ikek er del av den fysiske verden. 
 
